@@ -60,7 +60,7 @@ I'm currently open to:
 
 I'm especially interested in opportunities where I can contribute to real projects, continue learning quickly, and apply what I'm building in ISKRA CORE to useful problems.
 
-I'm not looking for charity or sponsorship — I'm looking for opportunities to create value, grow technically, and earn through useful work.
+I'm looking for opportunities where I can create real value, continue growing technically, and earn through useful work while pushing ambitious projects like ISKRA CORE forward.
 
 ## 📫 Contact
 
